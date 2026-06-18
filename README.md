@@ -14,3 +14,7 @@ Repositorio personal con documentación profesional.
 ## Contacto
 
 Para cualquier consulta profesional: **littlemusicianseducation@gmail.com**
+
+---
+
+*Última actualización: junio 2026*
